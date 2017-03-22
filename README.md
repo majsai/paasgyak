@@ -1,0 +1,1 @@
+GYAKORLAT3
